@@ -1,11 +1,6 @@
 ↀↀ 微信中无法打开的地区，请将本站网址 https://github.com/gyhhx/yy 输入到浏览器中打开。 
 
  <table>
- <tr>
- <td colspan="2" align=left>
-♡请及时收藏本站以免失连♡♡♡
-</td>
- </tr>
   <tr>
     <td colspan="2" align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg"></td>
  </tr>
