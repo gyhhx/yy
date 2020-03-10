@@ -8,7 +8,6 @@
   <tr>
     <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
  </tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1141331&key=eqxowaguscvmxdgc&from=yy">【有冇搞错】政变 暗杀 事故 3月5日发生什么</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1141395&key=eqxowaguscvmxdgc&from=yy">【有冇搞错】政变 暗杀 事故 3月5日发生什么</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1141336&key=eqxowaguscvmxdgc&from=yy">武汉肺炎疫情何时结束 香港专家：不会完结</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1141211&key=eqxowaguscvmxdgc&from=yy">比蝗灾更紧急 草地贪夜蛾已侵大陆8省</a></td></tr>
